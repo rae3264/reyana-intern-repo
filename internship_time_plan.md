@@ -1,0 +1,38 @@
+# Internship Time Plan
+
+## Weekly Schedule
+
+- Monday  
+  - 2 hours (Remote)
+
+- Wednesday  
+  - 2 hours (Remote)
+
+- Friday  
+  - 9:00 AM – 5:00 PM (On-site)
+
+- Saturday or Sunday  
+  - 3 hours ( Remote)
+
+
+## Total Weekly Hours
+- Monday: 2 hours  
+- Wednesday: 2 hours  
+- Friday: 8 hours  
+- Weekend: 3 hours  
+Total: 15 hours per week
+
+
+## Total Internship Hours
+- 12 weeks × 15 hours/week = more then 120 hours by 15th OCT
+
+
+## Location
+- On-site: Fridays (9:00 AM – 5:00 PM)  
+- Remote: Mondays, Wednesdays, and Weekend sessions
+
+
+## Notes
+- Focus Bear app will be used to log time and maintain accountability.  
+- Weekend work hours can be adjusted based on workload but must total at least 3 hours.  
+- This schedule ensures consistent weekly progress while balancing academic and personal commitments.
